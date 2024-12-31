@@ -1,2 +1,4 @@
 # UAS-MOBILE
 # RIAN AHMAD_F55123088
+# Muh. Rayyan Nazmuddin_F55123076
+# Muh. Al Faiz_F55123085
